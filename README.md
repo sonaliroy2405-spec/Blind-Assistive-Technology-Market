@@ -1,1 +1,0 @@
-# Blind-Assistive-Technology-Market
